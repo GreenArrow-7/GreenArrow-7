@@ -8,8 +8,6 @@
  
 👨‍💻 All of my projects are available at https://github.com/greenarrow-7
  
-📝 I regularly write articles
- 
 📫 How to reach me redarrow990088@gmail.com
  
 ⚡ Hackers don't just take stuff apart; they figure out how it works and use it for their magic tricks. 🧙‍♂️🔮
